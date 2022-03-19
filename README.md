@@ -1,2 +1,2 @@
-# Priyanshu-Sinha.github.io
+prynshsnh.github.io
  Priyanshu's website.
